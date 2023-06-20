@@ -1,3 +1,3 @@
 Membres du Groupe:
-- Jordan Moris Boissy
-- Insa Diouf
+- Ousmane Mbaye
+- Cheikhou Cissé
